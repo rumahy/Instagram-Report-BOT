@@ -14,3 +14,6 @@ This is a mass report bot from many users worldwide, Bot can report a account wi
 <br>
 Tags: 
 instagram report bot, instagram report tool, instagram reporter, instagram account report, instagram mass report, instagram account ban, instagram profile banned, instagram profile report, instagram report hack, instagram mass report bot, instagram acc banned bot, instagram acc report bot, instagram acc ban tool, instagram banned account tool
+
+# Instagram-Report-BOT
+# Instagram-Report-TOOL
